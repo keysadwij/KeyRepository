@@ -10,8 +10,8 @@ Di alam semesta yang luas nya luas bgt ini, aku banyak banget tertarik dengan be
 ## 💻🚨lagi sibuk sama...
 Menjalani semester 3 yang ternyata tidak semenyenangkan itu, tapi nggapapa sihh, aku jujur enjoy ajaa dengan lika liku ini wkwk. Main sama temen-temen suporteran, ikut lomba terus kepanitian, dann sering ikut event medis sih, meskipun ngga selinear sama jurusan ku, tapi setidaknya itu bikin aku tetep waras waktu kuliah wkwk.
 
-## kalo di tanya hobi aku tuh...
+## 🤷🏻‍♀️🧚kalo di tanya hobi aku tuh...
 🐣🙉randomly, hobby aku beres-beres, aku super duper seneng banget kalo beres-beres, meskipun capek kalo aku udah beres beres tuh gatau seneng aja gitu, hobby aku juga motorann riding, hiking, nonton film, tidur, masak wkwk apa aja lahhh dengerin musik, nyanyi juga sukaa. aku suka semua yang bisa aku lakuin. love it!
 
-nice to know youuuu
+# nice to know youuuu
 ![alt text](image-1.png)
